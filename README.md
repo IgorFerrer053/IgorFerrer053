@@ -1,0 +1,5 @@
+- 👋 Olá me chamo Igor Ferreira
+- 👀 Estou interessado em oportunidades e em crescer profissionalmente 
+- 🌱 Estou ganhando conhecimento
+- 💞️ Desenvolver minhas abilidades e colaborar com projetos da comunidade
+- 📫  E-mail: Igorsantfer@gmail.com
